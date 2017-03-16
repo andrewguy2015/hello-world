@@ -1,2 +1,3 @@
 # hello-world
 this is a very simple traditional start application in my life.
+ yes it is , my name is kimbowa andrew and am the best app developer, invetor and programmer the world has never seen, am saying like this because the wisdom that is at work in me is not mere wisdom, its wisdom from on high, its a heavenly wisdom , the very wisdom that is in the chinese, Albert Einsten, solomon or any one you think or you have even never heard about, am a SON-OF-GOD, this is the very bottom line, and i think that explains it all, i know all things because i have been crucified with christ never the less i live, yet not I , and the life that i live now i live by the faith of JESUS CHRIST..who gave Himself for me...
